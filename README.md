@@ -1,1 +1,0 @@
-# challenge-telecom-x-parte-2
